@@ -20,3 +20,13 @@ My Playlist:
 My Favorite Song:
 
 https://youtu.be/L9Dr2iUWBo0
+
+My Favorite Song Writers
+
+Ely Buendia of Eraserheads
+Taylor Swift
+Parokya Ni Edgar
+Tyler the Creator
+The Weeknd
+Frank Ocean
+Olivia Rodrigo
