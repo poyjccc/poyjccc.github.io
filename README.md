@@ -1,5 +1,6 @@
 # poyjccc.github.io
-John Constantine B. Claro
+My name is John Constantine B. Claro
+I am 15 Years old and I am 6'1 
 
 My Hobbies:
 
